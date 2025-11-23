@@ -3,3 +3,21 @@
 
 <p align="center">
   <img src="https://64.media.tumblr.com/77afc656c1708300d64713bb25862572/3c5ead0503d8ef9a-ef/s400x600/594f086d199b60655970415fe930ca42f9aa6315.gifv">
+
+<p align="center">
+<img src="https://64.media.tumblr.com/8c83c9a013c46a3a2942e47695865b45/e3822453c5b52207-48/s500x750/78b975286ebd62fc6221841d2e15e55517d47ffa.pnj">
+
+<p align="center">
+<img src="https://64.media.tumblr.com/4d4eee72a53b3ef13ba8166f1055459b/7576bb5603c22056-79/s75x75_c1/5953f9f4f749745a8ecda80044757a3943beb561.gifv">
+
+  <p align="center">
+  aubree / angel
+
+  <p align="center">
+<img src="https://64.media.tumblr.com/8c83c9a013c46a3a2942e47695865b45/e3822453c5b52207-48/s500x750/78b975286ebd62fc6221841d2e15e55517d47ffa.pnj">
+
+  <p align="center">
+<img src="https://supplies.ju.mp/assets/images/gallery05/b22917ee.gif?v=9163b103">
+
+<p align="center">
+13 (turning 14)
